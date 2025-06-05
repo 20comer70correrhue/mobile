@@ -1,2 +1,2 @@
 # mobile
-no jogamos league of legends
+no jogamos league of legends (só o enzo)
